@@ -8,3 +8,4 @@
 
 有需要的老板请加微信：K7_NET
 
+![微信图片_20231211200830](https://github.com/wuge2019/ruanzhubanli/assets/47548281/cd070c46-043f-4470-817e-6c0b8a972ad7)
